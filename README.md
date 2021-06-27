@@ -1,1 +1,1 @@
-# nlw-origin-six
+# beautysaloon
